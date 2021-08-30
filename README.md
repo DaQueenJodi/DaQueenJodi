@@ -1,4 +1,4 @@
-Hi, I’m @DaQueenJodi
+Hi, I’m Jodi
 
 I’m dumb, but I make stuff sometimes
 
